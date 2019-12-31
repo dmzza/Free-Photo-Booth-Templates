@@ -1,0 +1,2 @@
+# Free Photo Booth Templates
+ 
